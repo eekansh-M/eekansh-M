@@ -1,0 +1,1 @@
+Hi my name is Eekansh Muppasani and I am currently pursueing a degree in Computer Science, with a minor in Business adminstration, in Northeastern. 
